@@ -1,6 +1,6 @@
 # Yohoho.io Unblocked Game Web Adress
 ![Agario Unbblocked](https://playgamesio.net/assets/components/phpthumbof/cache/i-%281%29-2019-06-18-04-47-04.494c63ecae3e0f951a30cf9a66555d4d.jpg)
-## Click To Play # [Yohoho Unblocked](https://yohoho-io.school/)
+## Click To Play # [Yohoho Unblocked](https://yohoho4.com/)
 
 -------------------------------
 **Yohoho.io** is a popular multiplayer online game that is played by millions of people around the world. The game has gained popularity because of its unique gameplay, which involves players taking control of pirate ships and competing against each other to collect as much treasure as possible.
