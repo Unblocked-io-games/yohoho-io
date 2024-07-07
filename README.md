@@ -1,6 +1,6 @@
 # Yohoho.io Unblocked Game Web Adress
 
-## Click To Play # [Yohoho Unblocked](https://digdig2.github.io/yohoho/)
+## Click To Play # [Yohoho Unblocked](https://play-unblocked.github.io/yohoho.html)
 
 -------------------------------
 **Yohoho.io** is a popular multiplayer online game that is played by millions of people around the world. The game has gained popularity because of its unique gameplay, which involves players taking control of pirate ships and competing against each other to collect as much treasure as possible.
